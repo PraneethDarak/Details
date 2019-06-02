@@ -1,0 +1,4 @@
+# Details
+oblnk
+ogkb
+oivh .
